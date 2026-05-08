@@ -1,4 +1,4 @@
-
+Adobe Premiere Pro for macOS new Tool: lens-flare & keyframe-animation offers the most advanced Adobe Premiere Pro for macOS tool, with lens-flare and keyframe-animation. Ideal
 
 
 
